@@ -1,3 +1,3 @@
-# -devv
+# THT ODEV
 
 BU BİR THT ÖDEVİDİR. HEAVEN.
